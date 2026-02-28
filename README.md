@@ -1,0 +1,2 @@
+# mana-
+for privacy policy
